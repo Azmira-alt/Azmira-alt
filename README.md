@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Azmira-alt
+- 👋 Hi, I’m @Azmira
 - 👀 I’m interested in learing new things.
 
 
